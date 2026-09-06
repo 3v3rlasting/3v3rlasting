@@ -1,13 +1,13 @@
-# ㅤ۫ ㅤ     ㅤ꒰              𝓑𝓪𝔂𝓸𝓷𝓮𝓽𝓽𝓪                ꒱     ㅤ۫ ㅤ
+# ㅤ۫ ㅤ     ㅤ꒰              𝔒𝔟𝔞𝔫𝔞𝔦                ꒱     ㅤ۫ ㅤ
 
 **ꜱʜᴇ / ʜᴇʀ**　♡　**6𝘵𝘦𝘦𝘯**
 
 
-![yuna](https://cdn.discordapp.com/attachments/1369581346787164213/1545773222287511552/5AC0B4F2-C152-4A0A-90CC-5C67CB44EBC5.gif?ex=6a9d5cff&is=6a9c0b7f&hm=f5dddfb1679111e7164be8bbe0a800121ba58daed159d6b02e4288896b52bac8)
+![yuna](https://static2.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/86/6a/Ok7AT8qoY3m6uyf9W.gif)
 
 ♡　♡　♡
 
-> *𝐼 𝑓𝑒𝑒𝑙 𝑙𝑖𝑘𝑒 𝑎 𝑓𝑢𝑐𝑘𝑖𝑛𝑔 𝑐𝑒𝑙𝑒𝑏𝑟𝑖𝑡𝑦 𝑖𝑛 𝑡ℎ𝑖𝑠 𝑡𝑜𝑤𝑛!*
+> *𝙉𝘦𝙭𝘵 𝙩𝘪𝙢𝘦, 𝘐 𝙬𝘰𝙣𝘵 𝙡𝘦𝙩 𝘺𝙤𝘶 𝙙𝘪𝙚.  *
 
 
 ### 　        ˗ˋˏ          『 我爱你 』　　　⋌
