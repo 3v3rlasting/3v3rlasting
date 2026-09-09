@@ -1,13 +1,12 @@
-# ㅤ۫ ㅤ     ㅤ꒰              𝖽ⲟυϻⲇ                ꒱     ㅤ۫ ㅤ
+# ㅤ۫ ㅤ     ㅤ꒰              shιᥒᥲzυgᥲwᥲ                ꒱     ㅤ۫ ㅤ
 
 
 
-
-![yuna](https://64.media.tumblr.com/a05d52a3709cd4dd3373bd8bcefdadb2/2d922c55416db9bb-6f/s540x810/4bee3fd0fea192f8061a15a1e813da50eaae09b1.gif)
+![yuna](https://cdn.discordapp.com/attachments/1261677153590841489/1547338101771341844/IMG_4514.jpg?ex=6aa30e67&is=6aa1bce7&hm=ddc9e59578ac35f452eafb31d015e0f496cdb98baaec1eb4b2e8a413ae605e5c)
 
 ♡　♡　♡
 
-> 𝘐 𝘤𝘢𝘯'𝘵 𝘣𝘦𝘭𝘪𝘦𝘷𝘦 𝘪𝘵... 𝘚𝘶𝘤𝘩 𝘣𝘭𝘢𝘻𝘪𝘯𝘨 𝘴𝘱𝘦𝘦𝘥. 𝘠𝘰𝘶 𝘮𝘪𝘨𝘩𝘵 𝘣𝘦 𝘵𝘩𝘦 𝘧𝘢𝘴𝘵𝘦𝘴𝘵 𝘩𝘢𝘴𝘩𝘪𝘳𝘢 𝘐'𝘷𝘦 𝘦𝘷𝘦𝘳 𝘮𝘦𝘵.  
+> 𝘐'𝘮 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥 𝘵𝘩𝘢𝘵'𝘭𝘭 𝘳𝘪𝘱 𝘺𝘰𝘶𝘳 𝘩𝘦𝘢𝘥 𝘰𝘧𝘧, 𝘣𝘪𝘵𝘤𝘩.  
 
 
 
@@ -17,16 +16,15 @@
 **ꜱʜᴇ / ʜᴇʀ**　♡　**6𝘵𝘦𝘦𝘯**
 
 
----
 
+---
 
 `♡ ⲥ + ⲏ ⲉⲛⲥ ♡`
 
 
+![yuna](https://cdn.discordapp.com/attachments/1261677153590841489/1547336951399448686/IMG_4512.jpg?ex=6aa30d55&is=6aa1bbd5&hm=09fcc75fcf7ca11224f24439afee27b1b871a642c2fc1bfd536b715f9637473c)
 
-![yuna](https://static2.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/11/81/Rcjd2j5UKHus5sUwcX2.gif)
-
-> ᴍᴀʏʙᴇ ɴᴏᴛ.
+> 𝘐’𝘮 𝘯𝘰𝘵 𝘺𝘰𝘶𝘳 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘐 𝘸𝘢𝘴 𝘫𝘶𝘴𝘵 𝘩𝘶𝘯𝘨𝘳𝘺.
 
 
 ![Butterflies counter on GitHub](https://komarev.com/ghpvc/?username=3v3rlasting)
