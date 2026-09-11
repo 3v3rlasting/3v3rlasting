@@ -1,13 +1,12 @@
-# ㅤ۫ ㅤ     ㅤ꒰              shιᥒᥲzυgᥲwᥲ                ꒱     ㅤ۫ ㅤ
+# ㅤ۫ ㅤ     ㅤ꒰              ᴍʏ ᴛᴏᴘ 15 ꜰᴀɴᴅᴏᴍꜱ!                ꒱     ㅤ۫ ㅤ
 
 
 
-![yuna](https://cdn.discordapp.com/attachments/1261677153590841489/1547338101771341844/IMG_4514.jpg?ex=6aa30e67&is=6aa1bce7&hm=ddc9e59578ac35f452eafb31d015e0f496cdb98baaec1eb4b2e8a413ae605e5c)
+![yuna](https://cdn.discordapp.com/attachments/1369581346787164213/1547957598316134510/266_20260911181045.jpg?ex=6aa54f5b&is=6aa3fddb&hm=a78319d28fa41ec0fb3d7a71a7e966a1fde6db509ac8a3784113d94a1b33c33f)
+
+𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘮𝘰𝘰𝘵 𝘮𝘦 𝘶𝘱!
 
 ♡　♡　♡
-
-> 𝘐'𝘮 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥 𝘵𝘩𝘢𝘵'𝘭𝘭 𝘳𝘪𝘱 𝘺𝘰𝘶𝘳 𝘩𝘦𝘢𝘥 𝘰𝘧𝘧, 𝘣𝘪𝘵𝘤𝘩.  
-
 
 
 ### 　        ˗ˋˏ          『 我爱你 』　　　⋌
@@ -22,9 +21,9 @@
 `♡ ⲥ + ⲏ ⲉⲛⲥ ♡`
 
 
-![yuna](https://cdn.discordapp.com/attachments/1261677153590841489/1547336951399448686/IMG_4512.jpg?ex=6aa30d55&is=6aa1bbd5&hm=09fcc75fcf7ca11224f24439afee27b1b871a642c2fc1bfd536b715f9637473c)
+![yuna](https://cdn.discordapp.com/attachments/1369581346787164213/1547963216204926986/596B7F45-099E-4C74-AC40-E1C92CC1C865.gif?ex=6aa55496&is=6aa40316&hm=9bc9ced890b7b1a674b14affe1cbea75ab5f59a89d8b95da03939e2edfe85ddd)
 
-> 𝘐’𝘮 𝘯𝘰𝘵 𝘺𝘰𝘶𝘳 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘐 𝘸𝘢𝘴 𝘫𝘶𝘴𝘵 𝘩𝘶𝘯𝘨𝘳𝘺.
+> 𝘐 𝘣𝘦𝘭𝘪𝘦𝘷𝘦 𝘵𝘩𝘢𝘵 𝘨𝘰𝘰𝘥 𝘵𝘩𝘪𝘯𝘨𝘴 𝘰𝘯𝘭𝘺 𝘤𝘰𝘮𝘦 𝘵𝘰 𝘵𝘩𝘰𝘴𝘦 𝘸𝘩𝘰 𝘸𝘢𝘪𝘵.
 
 
 ![Butterflies counter on GitHub](https://komarev.com/ghpvc/?username=3v3rlasting)
