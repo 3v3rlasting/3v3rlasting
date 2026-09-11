@@ -26,4 +26,7 @@
 > 𝘐 𝘣𝘦𝘭𝘪𝘦𝘷𝘦 𝘵𝘩𝘢𝘵 𝘨𝘰𝘰𝘥 𝘵𝘩𝘪𝘯𝘨𝘴 𝘰𝘯𝘭𝘺 𝘤𝘰𝘮𝘦 𝘵𝘰 𝘵𝘩𝘰𝘴𝘦 𝘸𝘩𝘰 𝘸𝘢𝘪𝘵.
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkhizue2mjcdme3law4vx6om7i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ac2f2f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
 ![Butterflies counter on GitHub](https://komarev.com/ghpvc/?username=3v3rlasting)
