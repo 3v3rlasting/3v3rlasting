@@ -2,7 +2,7 @@
 
 
 
-![yuna](https://cdn.discordapp.com/attachments/1369581346787164213/1547957598316134510/266_20260911181045.jpg?ex=6aa54f5b&is=6aa3fddb&hm=a78319d28fa41ec0fb3d7a71a7e966a1fde6db509ac8a3784113d94a1b33c33f)
+![yuna](https://cdn.discordapp.com/attachments/1347485899344056381/1548015166782840832/267_20260911215929.jpg?ex=6aa584f8&is=6aa43378&hm=5a609ed08d5cd129d878fcbdd80ad5c4822c37da8ea27931bc67b2594ff7deaf)
 
 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘮𝘰𝘰𝘵 𝘮𝘦 𝘶𝘱!
 
