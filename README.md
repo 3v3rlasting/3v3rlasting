@@ -17,4 +17,4 @@
 
 ---
 
-> fyi: i dont unfriend anybody unless i have a reason to (fights/arguments), so i might have just went offline 
+- fyi: i dont unfriend anybody unless i have a reason to (fights/arguments), so i might have just went offline 
