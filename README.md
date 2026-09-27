@@ -16,3 +16,5 @@
 **ꜱʜᴇ / ʜᴇʀ**　♡　**6𝘵𝘦𝘦𝘯**
 
 ---
+
+> fyi: i dont unfriend anybody unless i have a reason to (fights/arguments), so i might have just went offline 
