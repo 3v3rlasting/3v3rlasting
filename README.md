@@ -16,4 +16,4 @@
 
 ---
 
-- fyi: im offtab half of the time, so sorry if i miss any of your messages + i barely have the courage to sit next to somebody new
+- fyi: im offtab half of the time, so sorry if i miss any of your messages + im too shy to sit next to smb
