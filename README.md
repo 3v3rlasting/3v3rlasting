@@ -16,4 +16,4 @@
 
 ---
 
-- fyi: i dont unfriend anybody unless i have a reason to (fights/arguments), so i might have just went offline 
+- fyi: im offtab half of the time, so sorry if i miss any of your messages + i barely have the courage to sit next to somebody new
